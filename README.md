@@ -1,1 +1,1 @@
-# KONGARA-SNEHITH-COllections-Task
+# KONGARA-SNEHITH-Collection-Task
